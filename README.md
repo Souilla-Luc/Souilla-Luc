@@ -16,14 +16,11 @@ I am deeply interested in one of humanity’s greatest challenges 🌡️🌎
 - **Research & Academia in the Climate Crisis**  
    🔹 How academic practices may not align with climate action. 
     
-- **My Personal Carbon Footprint**:  
-   - 🌱 2024: 5.56 tCO₂e  
-   - 🌱 2023: 3.80 tCO₂e  
+- **My Personal Carbon Footprint**:  🌱 2024: 5.56 tCO₂e |  2023: 3.80 tCO₂e  
 
 
 #### 🤝 Collaboration & Interests  
-I’m looking to collaborate with anyone interested in:  
-- Human thermoregulation / Cardiovascular responses / heat vulnerability / Sustainable research practices**
+I’m looking to collaborate with anyone interested in:  Human thermoregulation / Cardiovascular responses / heat vulnerability / Sustainable research practices**
 
 🚲 Fun fact: I bet any transportation can be done by bike! 😄  
   
