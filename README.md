@@ -20,7 +20,7 @@ I am deeply interested in one of humanity’s greatest challenges 🌡️🌎
 
 
 #### 🤝 Collaboration & Interests  
-I’m looking to collaborate with anyone interested in:  Human thermoregulation / Cardiovascular responses / heat vulnerability / Sustainable research practices**
+I’m looking to collaborate with anyone interested in:  Human thermoregulation / Cardiovascular responses / heat vulnerability / Sustainable research practices
 
   
 #### 📢 Supporting Fairer Academic Evaluation  
