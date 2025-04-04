@@ -22,16 +22,11 @@ I am deeply interested in one of humanity’s greatest challenges 🌡️🌎
 #### 🤝 Collaboration & Interests  
 I’m looking to collaborate with anyone interested in:  Human thermoregulation / Cardiovascular responses / heat vulnerability / Sustainable research practices**
 
-🚲 Fun fact: I bet any transportation can be done by bike! 😄  
   
 #### 📢 Supporting Fairer Academic Evaluation  
 Want to promote **fairer academic evaluation**? Check out **ProAc** by Fabio Crameri!  
 Here’s mine:  
 ![Here’s mine:](ProAc-LucSouilla-2025-Apr.png)
-
-
-  
-📖 **ResearchGate**: [Click here](https://www.researchgate.net/profile/Luc-Souilla)
 
 
 📄 **Want to know more?** Check out my **[CV](https://github.com/Souilla-Luc/CV/blob/master/CV.pdf)**  
