@@ -27,7 +27,7 @@ I’m looking to collaborate with anyone interested in:  Human thermoregulation 
 #### 📢 Supporting Fairer Academic Evaluation  
 Want to promote **fairer academic evaluation**? Check out **ProAc** by Fabio Crameri!  
 Here’s mine:  
-📌 *(Insert image in this repository)*  
+![Here’s mine:](ProAc-LucSouilla-2025-Apr.png)
 
 
   
