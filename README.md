@@ -6,9 +6,9 @@ My research explores the intersection of **health, physiology, and climate chang
 
 
 #### 🎓 Research Background  
-- 🏋️ **Ph.D. Focus**: Health-related physical fitness and physical activity, with the implementation of cardiac rehabilitation programs for children and adolescents with inherited cardiac diseases.  
-- 🔥 **Postdoctoral Research**: Investigating **heat exposure** and its **physiological and perceptual** effects on individuals with health and economic vulnerabilities.  
-- 🌱 **Future Interests**: Studying physiological responses in **vulnerable infants and children** facing heat stress.  
+-  **Ph.D. Focus**: Health-related physical fitness and physical activity, with the implementation of cardiac rehabilitation programs for children and adolescents with inherited cardiac diseases.  
+-  **Postdoctoral Research**: Investigating **heat exposure** and its **physiological and perceptual** effects on individuals with health and economic vulnerabilities.  
+-  **Future Interests**: Studying physiological responses in **vulnerable infants and children** facing heat stress.  
 
 
 #### 🌍 Passion for Climate Change & Sustainability  
