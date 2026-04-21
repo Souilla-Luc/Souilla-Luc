@@ -14,7 +14,8 @@ My research explores the intersection of **health, physiology, and climate chang
 #### 🌍 Passion for Climate Change & Sustainability  
 I am deeply interested in one of humanity’s greatest challenges 🌡️🌎  
 - **Research & Academia in the Climate Crisis**  
-   🔹 How academic practices may not align with climate action. 
+  🔷 How academic practices may not align with climate action?
+  🔷 How the "publish or perish" mindset delayed climate action and weakened academia's involvement in climate-friendly research
     
 - **My Personal Carbon Footprint**:  🌱 2025: 5.45 tCO₂e (including professionnal activities)  2024: 5.56 tCO₂e (including professionnal activities) |  2023: 3.80 tCO₂e  
 
